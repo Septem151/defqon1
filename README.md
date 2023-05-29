@@ -54,3 +54,33 @@ The blue stage hosts primarily "Rawstyle" performances. Raw is categorized by pu
 - [Riot Shift - FIGHTING DEMONS](https://open.spotify.com/track/0SHI54cOrosSZySfTGvN3n)
 - [Rooler, Warface - FLYIN' HIGH](https://open.spotify.com/track/6UjTx1wIv9GuxMwyl1D6Q0)
 - [Malice - CONTROL MY ANGER](https://open.spotify.com/track/2LMeEidRd7nPz6yb7KAt4B)
+- [Vertile - No Sleep](https://open.spotify.com/track/5hjWgOw8sAYwP0KtVmVTcm)
+- [E-Force - The Remedy](https://open.spotify.com/track/6cvjpsHCih5fVlKTuuZFCH)
+- [E-Force, Luna - Interception](https://open.spotify.com/track/6Ph4cSMzXnH14n7HeZt4uH)
+- [Aftershock - Top Of The World](https://open.spotify.com/track/74UsQca1cNWap3mFp13z5B)
+- [Unresolved, Sub Sonik - Next Level](https://open.spotify.com/track/3rYbbTaZpgTkgTVM0TgaSo)
+- [Gunz For Hire, GLDY LX - Baddest On The Block](https://open.spotify.com/track/08ud7LBUoLLgqJhmhjic8c)
+
+## BLACK
+
+[Playlist Link](https://open.spotify.com/playlist/3uN9gW3a8tGu0TGf74bXwU)
+
+The black stage hosts Hardcore, which includes the influencers of both old and new. Hardcore has its roots before hardstyle and is slightly faster with minimal pitching of kicks. Sometimes an older "millenium hardcore" sound can be heard in modern tracks at the black stage. The black stage also has been getting progressively more welcoming to uptempo acts.
+
+- [Anime, Broken Minds - Go Insane](https://open.spotify.com/track/1oe3wAz4XvMtn6nFoldM1w)
+- [Re-Style, Juju Rush - Reignite](https://open.spotify.com/track/4gljc0OCt5GnHXyFeUosbO)
+- [Neophyte, Nosferatu - Braincracking - Nosferatu Remix](https://open.spotify.com/track/5MjwjhtMnmjLv0kX6Cq7GO)
+  - 0:47 Includes the perfect example of what an early hardcore kick is, followed by a more modern hardcore kick at 1:20
+- [Evil Activities, Noisia, The Upbeats - Dead Limit - Evil Activities Remix](https://open.spotify.com/track/3Tez9FI9bgkA7aMO7JYjqT)
+- [Korsakoff, Partyraiser - Edison](https://open.spotify.com/track/7obK6GuQBRXK9agu8sfyrz)
+- [Lady Dammage, Bulletproof, Darkside Unleashed - Glamorous](https://open.spotify.com/track/5CEzCq8TwUEgUJzNzJXbzV)
+  - Borderlines on uptempo, but that's just how the black stage has been lately
+- [Trespassed, Major Conspiracy - Hardcore Linksvoor](https://open.spotify.com/track/0yDcuG0yrNqeFby3DOSIi0)
+- [Barber - Anger In The Nation](https://open.spotify.com/track/76EpojR09zjVX00daVTxsM)
+- [Dither, Deadly Guns, Warface - We Always Rise](https://open.spotify.com/track/0ieNx6I5yszUO7KuU4wTKN)
+- [Angerfist, Miss K8 - Breinbreker](https://open.spotify.com/track/3tsvQn3I0rKNYrTwzu4iNX)
+- [Ruffneck, Moshpitch - Juno "Ala Turca" (PT.1)](https://open.spotify.com/track/44oOB0GIBkWWbsebnPXl1q)
+  - Early hardcore
+- [Never Surrender - I'm A Raver](https://open.spotify.com/track/1zdCuA3OezPXkK2raYt0BY)
+- [DRS, Irradiate, Tha Watcher - Warriors](https://open.spotify.com/track/7vSHVfHFSaMgWgV7FjQn3M)
+- [Dr. Peacock, Partyraiser, Major Conspiracy - Trip to Holland - Major Conspiracy Remix](https://open.spotify.com/track/34VuCA6WFnxdvN2KT5puDD)
