@@ -41,6 +41,8 @@ Red stage hosts artists that represent the current trends of "Hardstyle", as wel
 
 ## BLUE
 
+[Playlist Link](https://open.spotify.com/playlist/4Tgk0sVTxitn50OpxUJuZG)
+
 The blue stage hosts primarily "Rawstyle" performances. Raw is categorized by punchy hollow kicks, loud screeches, fake drops, and as of late zaagkicks. Blue is the toned-down version of Indigo, which is classified as the "XTRA RAW" stage. Blue features more mainstream raw artists of today.
 
 - [Kronos, Unresolved - XTC](https://open.spotify.com/track/4e6IeyAH5IxXM2XsyusvIb)
